@@ -1,2 +1,2 @@
 # best-repo-evssssss
-3000 na rękę i blancik po robocie 
+4000 na rękę i blancik po robocie i jeszcze piwerko skurczybyczq
